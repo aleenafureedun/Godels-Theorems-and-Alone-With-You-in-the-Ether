@@ -33,6 +33,7 @@ I can’t even tell if I’m hallucinating or being delusional, but…they are t
 
 My seventh (current) read will ultimately be guided by the above.  We’ll be speculating connections and drawing parallels (ik). All of the good stuff.
 
+I know 7 is your favourire number so please add it here LOL
 ## Anyway!
 
 This repo will be my space to brain-dump, conduct research, and perform deeper analyses of "Alone with You in the Ether." I have been trying to write a review for this book since I first read it last year, but it’s so rich and Philosophical that I find it pretty hard to write a systematic review that magnificently captures the essence of the book.  I guess it’s not that hard anymore hehe
